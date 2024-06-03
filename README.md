@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ovarion225
+- 👀 I’m interested in computer science
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on everithing related to technology
+- 📫 How to reach me https://linkedin.com/in/sanayasfp
+- ⚡ Fun fact: It's the idiot who, when shown the moon with a finger, looks at the tip of the finger.
